@@ -12,4 +12,4 @@ Suggestions are invited!<br/>
 
 <bold>Thanks a lot</bold><br/>
                                                                                                         Project Manager<br/>
-                                                                                                         <b>Shashi Raj</b>
+                                                                                                         <b>Jai Sadana</b>
